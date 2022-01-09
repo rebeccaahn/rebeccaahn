@@ -6,7 +6,7 @@ As I enthusiastically journey into the vast, unknown world of *Computer Science*
 As Proverbs 18:15 states,  
 > The heart of the discerning acquires knowledge, for the ears of the wise seek it out.
 
-Motivated by the pursuit of knowledge and carrying a sense of moral responsibility, I hope that you too are encouraged to do the same. 💜
+Motivated by the pursuit of knowledge and carrying a sense of moral responsibility, I hope that whoever is viewing my profile right now is encouraged to do the same. 💜
 
 Want to know more about me or wish to contact me? Find me on [LinkedIn](https://www.linkedin.com/in/rebecca-ahn/).
 
